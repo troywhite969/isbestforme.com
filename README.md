@@ -1,0 +1,2 @@
+# isbestforme.com
+Affiliate website
